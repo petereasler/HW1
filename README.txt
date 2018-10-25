@@ -1,2 +1,0 @@
-Peter Easler
-Chicago Cubs
